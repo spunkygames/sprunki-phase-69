@@ -17,7 +17,7 @@ Sprunki Phase 69 is a dark, fan-made horror mod of the Spunky game.  Experience 
 
 ## What is Sprunki Phase 69? <a name="what-is-sprunki-phase-69"></a>
 
-Sprunki Phase 69 is a fan-created horror-themed modification of the Spunky game. It offers a darker, more suspenseful experience with haunting melodies and reimagined characters.  Explore the wider Spunky universe with [Spunky Game](https://spunkygame.quora.com/), [Esprunki](https://esprunki.quora.com/), and [Sprunki](https://sprunki.quora.com/).
+Sprunki Phase 69 is a fan-created horror-themed modification of the Spunky game. It offers a darker, more suspenseful experience with haunting melodies and reimagined characters.  Explore the wider Spunky universe with [Spunky Game quora](https://spunkygame.quora.com/), [Esprunki quora](https://esprunki.quora.com/), and [Sprunki quora](https://sprunki.quora.com/).
 
 
 ---
